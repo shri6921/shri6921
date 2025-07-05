@@ -1,2 +1,2 @@
-- Namskar, I’m @shrinath
+- Namskar, I’m @shri
   
